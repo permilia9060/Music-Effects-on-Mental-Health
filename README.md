@@ -1,0 +1,1 @@
+Music has long been associated with influencing mood and emotions.  Understanding the connection between music preferences and mental health is crucial for promoting well-being.  This project aims to contribute insights into how individuals' musical choices may correlate with their mental health conditions.
